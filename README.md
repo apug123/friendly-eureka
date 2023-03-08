@@ -78,7 +78,7 @@ I've answered a few for you already:
 
 **What pronouns do you use?**
 
-[she/her](https://pronoun.is/she)
+she/her
 
 **What makes you grumpy?**
 
@@ -108,4 +108,4 @@ Being able to ask questions and collaborate rather than receiving or giving orde
 
 **What's your favorite food?**
 
-Fries always win my heart.
+I can't turn down fries.
