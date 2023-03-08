@@ -16,7 +16,7 @@ This is a living document. It is incomplete and will continue to grow and change
 
 Related to the above, I sometimes write messages when we should be talking instead. Please point it out to me if this is not ideal. 
 
-I used to have trouble with work life balance. I still do, but I'm much better about it. Please respect my attempt at a work life balance - I go to the gym almost everyday, ice skating classes and practice at the rink, and need to take breaks otherwise I can stay focused way past work hours. 
+I used to have trouble with work life balance. I still do, but I'm much better about it. Please respect my attempt at a work life balance - lately I'm always at the gym or ice rink.  
 
 ## My premise
 
