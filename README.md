@@ -126,7 +126,7 @@ My love language is not words of appreciation but that doesn't mean I don't want
 
 **What's your favorite way to treat yourself?**
 
-A nice massage and watching my favorite guilty pleasure shows. 
+A deep tissue massage and watching my favorite guilty pleasure shows. 
 
 ## This document, like me, is a work in progress
 I try to update it frequently and appreciate your feedback.
