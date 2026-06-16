@@ -124,9 +124,9 @@ My love language is not words of appreciation but that doesn't mean I don't want
 * transparent and consistent updates on organizational and departmental level changes, especially ones that affect me or my team directly
 * tools and resources to set me up for success when requested i.e specific tech stacks, enablement requests, urgent fires
 
-**What's your favorite food?**
+**What's your favorite way to treat yourself?**
 
-I can't turn down fries.
+A nice massage and watching my favorite guilty pleasure shows. 
 
 ## This document, like me, is a work in progress
 I try to update it frequently and appreciate your feedback.
