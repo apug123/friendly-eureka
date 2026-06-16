@@ -121,7 +121,7 @@ My love language is not words of appreciation but that doesn't mean I don't want
 **From leadership? (above manager level)**
 
 * all of the above in addition to:
-* transparent and consistent updates on organizational and departmental level changes
+* transparent and consistent updates on organizational and departmental level changes, especially ones that affect me or my team directly
 * tools and resources to set me up for success when requested i.e specific tech stacks, enablement requests, urgent fires
 
 **What's your favorite food?**
